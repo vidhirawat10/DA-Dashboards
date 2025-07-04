@@ -60,7 +60,7 @@ Whether you're preparing for business decision-making or aiming to enhance your 
 
 **Vidhi Rawat**  
 🎓 Data Analyst | Machine Learning Enthusiast  
-🔗 [LinkedIn](https://linkedin.com/in/vidhirawat10)
+🔗 [LinkedIn](https://www.linkedin.com/in/vidhi-rawat-8a795928b/)
 
 ---
 
